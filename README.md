@@ -7,4 +7,4 @@ Currently:
 - Tinkering with AI tooling
 - NUS CCSGP fellow Co-Founder (Assessmate)
 
-**Let's get in touch** → [email](mailto:pappupranav311@gmail.com) · [linkedin](https://www.linkedin.com/in/pranav-pappu)
+**Let's get in touch** → [email](mailto:pappupranav311@gmail.com) · [linkedin](https://www.linkedin.com/in/pranav-pappu) · [website](https://pranavpappu.dev/)
